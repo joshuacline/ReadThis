@@ -7,6 +7,9 @@
 - 4. What makes a site happy. Something you will not have when first entering this realm. /paradox
 - 5. You are being actively targeted, harassed, and sabatoged. You just haven't found out yet.
 - 6. Hacked ***yet***? Following the trail of breadcrumbs. This isn't your pappy's Hansel & Gretel.
-- 7. When you see signs, protect your friends, family, and reputation. Do not be afraid of judgement. Do not be silent.
+- 7. Noteworthy earmarks of decadent crony capitalism: Ministry of Truth, devfluencers, the reward system, public contributions, and you. Our ancestors have left us nothing but for thugs, tyrants and astrofurf. 
+
+
+***When you see signs, protect your friends, family, and reputation. Do not be afraid of judgement. Do not be silent.***
 
 I'll be taking my time. It might save a life.
