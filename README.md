@@ -1,4 +1,5 @@
-- ![Alt text](wydkwhy.jpg "What you don't know will hurt you")
+<a href="https://youtu.be/GNm5drtAQXs" target="_blank"><img src="/wydkwhy.jpg" alt="What you don't know will hurt you" width="720"/></a>
+
 # Aspiring to become a software developer? Allow me to dodge that bullet for you.
 - ***Topics that will be covered***
 - 1. Corruption drips from the top down.
@@ -18,5 +19,3 @@
 ***When you see signs, protect your friends, family, and reputation. Do not be afraid of judgement. Do not be silent.***
 
 I'll be taking my time. It might save a life.
-
-<a href="https://youtu.be/GNm5drtAQXs" target="_blank"><img src="http://img.youtube.com/vi/GNm5drtAQXs/mqdefault.jpg" alt=" " width="720"/></a>
