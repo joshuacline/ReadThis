@@ -15,6 +15,7 @@
 - 11. Noteworthy earmarks of decadent crony capitalism: Ministry of Truth, devfluencers, the reward system, public contributions, and you. Our ancestors have left us nothing but for thugs, tyrants and astrofurf.
 - 12. It's not as empty as it looks. They're there, like a grave digger that just took out a life insurance policy.
 - 13. You're not dead, it's the environment self-projecting. A common trope featured in various folklore, the deceased eternally yearn for that which they lack. That's not to say there won't be attempts to hasten the process. Check the obituaries.
+- 14. The giant extortion-circle-jerk in the room: Doesn't really matter which angle you're looking from, you'll never find the end. At some point you may notice that everyone in the community falls into two camps, involved or afraid. You'll be dealing with the public piggybacking and dissemination of past extortion threats, or merely even perceived threats aimed at someone else entirely. The end-result produced is similar either way, one of which that empowers the extortionists or acting extortionists, in addition to secondary extortion tactics courtesy of the community. You may be wondering why I'm still here? It's quite simple actually. There's nothing to extort, there never was, and there's nobody they can take from me. I'll stop when I'm deceased dead, and that's going to take more than recycling extortion rumors and surveillance threats.
 
 ***When you see signs, protect your friends, family, and reputation. Do not be afraid of judgement. Do not be silent.***
 
